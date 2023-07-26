@@ -1,7 +1,7 @@
 ✈️ JetWare
 JetWare External
 
-Discord Server
+Discord Server : TO BE MADE 
 
 👨‍💻 Created By Lima
 
